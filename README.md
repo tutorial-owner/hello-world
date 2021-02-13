@@ -58,3 +58,9 @@ West, where an evening was hurried from phase to phase towards its
 close, in a continually disappointed anticipation or else in sheer
 nervous dread of the moment itself.
 
+There was something pathetic in his concentration, as if his
+complacency, more acute than of old, was not enough to him any more.
+When, almost immediately, the telephone rang inside and the butler
+left the porch Daisy seized upon the momentary interruption and leaned
+towards me.
+
