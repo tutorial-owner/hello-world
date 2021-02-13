@@ -35,3 +35,11 @@ was quite likely to fall. If she saw me out of the corner of her eyes
 she gave no hint of it—indeed, I was almost surprised into murmuring
 an apology for having disturbed her by coming in.
 
+At any rate, Miss Baker’s lips fluttered, she nodded at me almost
+imperceptibly, and then quickly tipped her head back again—the object
+she was balancing had obviously tottered a little and given her
+something of a fright. Again a sort of apology arose to my lips.
+Almost any exhibition of complete self-sufficiency draws a stunned
+tribute from me.
+
+
