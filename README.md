@@ -47,3 +47,20 @@ I started—it was the first word she had uttered since I came into the
 room. Evidently it surprised her as much as it did me, for she yawned
 and with a series of rapid, deft movements stood up into the room.
 
+Sometimes she and Miss Baker talked at once, unobtrusively and with a
+bantering inconsequence that was never quite chatter, that was as cool
+as their white dresses and their impersonal eyes in the absence of all
+desire. They were here, and they accepted Tom and me, making only a
+polite pleasant effort to entertain or to be entertained. They knew
+that presently dinner would be over and a little later the evening too
+would be over and casually put away. It was sharply different from the
+West, where an evening was hurried from phase to phase towards its
+close, in a continually disappointed anticipation or else in sheer
+nervous dread of the moment itself.
+
+There was something pathetic in his concentration, as if his
+complacency, more acute than of old, was not enough to him any more.
+When, almost immediately, the telephone rang inside and the butler
+left the porch Daisy seized upon the momentary interruption and leaned
+towards me.
+
