@@ -11,3 +11,11 @@ East; the most western of splendid bridges over the Danube, which is
 here of noble width and depth, took us among the traditions of Turkish
 rule.
 
+We left in pretty good time, and came after nightfall to Klausenburgh.
+Here I stopped for the night at the Hotel Royale. I had for dinner, or
+rather supper, a chicken done up some way with red pepper, which was
+very good but thirsty. (_Mem._, get recipe for Mina.) I asked the
+waiter, and he said it was called "paprika hendl," and that, as it was a
+national dish, I should be able to get it anywhere along the
+Carpathians. I found my smattering of German very useful here; indeed, I
+don't know how I should be able to get on without it.
