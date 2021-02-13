@@ -42,4 +42,8 @@ something of a fright. Again a sort of apology arose to my lips.
 Almost any exhibition of complete self-sufficiency draws a stunned
 tribute from me.
 
+At this point Miss Baker said: “Absolutely!” with such suddenness that
+I started—it was the first word she had uttered since I came into the
+room. Evidently it surprised her as much as it did me, for she yawned
+and with a series of rapid, deft movements stood up into the room.
 
