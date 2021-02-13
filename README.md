@@ -22,3 +22,10 @@ end—but their physical resemblance must be a source of perpetual
 wonder to the gulls that fly overhead. To the wingless a more
 interesting phenomenon is their dissimilarity in every particular
 except shape and size.
+
+His speaking voice, a gruff husky tenor, added to the impression of
+fractiousness he conveyed. There was a touch of paternal contempt in
+it, even toward people he liked—and there were men at New Haven who
+had hated his guts.
+
+
