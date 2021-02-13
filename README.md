@@ -28,4 +28,10 @@ fractiousness he conveyed. There was a touch of paternal contempt in
 it, even toward people he liked—and there were men at New Haven who
 had hated his guts.
 
+The younger of the two was a stranger to me. She was extended full
+length at her end of the divan, completely motionless, and with her
+chin raised a little, as if she were balancing something on it which
+was quite likely to fall. If she saw me out of the corner of her eyes
+she gave no hint of it—indeed, I was almost surprised into murmuring
+an apology for having disturbed her by coming in.
 
